@@ -1,2 +1,2 @@
 # allyourcodearebelongtous.github.io
-Resistance is futile!
+In /dev/null no one can hear you scream.
